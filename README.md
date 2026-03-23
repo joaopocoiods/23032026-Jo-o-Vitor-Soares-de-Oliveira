@@ -1,2 +1,2 @@
-# 23032026-Jo-o-Vitor-Soares-de-Oliveira
+# 23032026-Joao-Vitor-Soares-de-Oliveira
 Prova Borzuk
